@@ -7,7 +7,7 @@
 ## Contact Information
 **Email:** ningxn@mail.uc.edu
 
-**LinkedIn / GitHub:** https://www.linkedin.com/in/xning-uc26/
+**LinkedIn:** https://www.linkedin.com/in/xning-uc26/
 
 ---
 
